@@ -7,3 +7,5 @@ ENcorrrrrrrrrrrrrrre
 j'ai oublié le commit 4 gros con
 un dernier ??
 EH NON HAHA
+
+Copyrighted ^^
